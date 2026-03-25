@@ -132,3 +132,7 @@ https://www.tinkercad.com/things/45Pz5gkUCrZ-trabalho-renan/editel?returnTo=http
 Projeto no Trello:
 
 https://trello.com/b/Hk3IEbvz/hydro-sensor
+
+Apresentação no Canva:
+
+https://www.canva.com/design/DAHE_YSWsZo/0yS9XP0jiGE9kryg6Kvwiw/edit
